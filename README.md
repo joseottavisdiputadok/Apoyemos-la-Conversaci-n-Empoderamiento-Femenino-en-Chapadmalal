@@ -1,5 +1,5 @@
 # Apoyemos-la-Conversaci-n-Empoderamiento-Femenino-en-Chapadmalal
-Introducción: 
+
 En el pintoresco enclave de Chapadmalal, en la provincia de Buenos Aires, se llevó a cabo un evento sin precedentes que reunió a más de 400 participantes de diversos municipios bonaerenses. Este encuentro de Formación Integral fue organizado por la Cámara de Diputados bonaerense como parte del programa "Yo, Mamá". Durante varios días, las jornadas sirvieron como un espacio crucial para el debate y la reflexión sobre el rol de la mujer en la sociedad actual, así como la exploración de sus derechos y la construcción de su identidad.
 
 El Debate Significativo: 
